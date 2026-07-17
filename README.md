@@ -7,4 +7,4 @@
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/6cc1c5ac-50ce-4419-961e-9982756f6c56" />
 
-<img width="736" height="677" alt="image" src="https://github.com/user-attachments/assets/fe4862b6-f26b-421e-bb8b-2bf0148bb3b1" />
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/fe4862b6-f26b-421e-bb8b-2bf0148bb3b1" />
