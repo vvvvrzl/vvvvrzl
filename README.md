@@ -16,7 +16,7 @@ i prefer knowing your boundaries before we become friends, tell me if you don’
  * basic dni
  * cc!dteam fans
  * wss
- * parasocial fans
+ * parasocial/toxic fans
  * boundary breakers
  * ai users
    
