@@ -19,6 +19,6 @@ i prefer knowing your boundaries before we become friends
  * ai users
    
   iwc :
- * 20+ ,small interactions, and conversations are okay, but we probably wont be FRIENDS friends, obviously, i’d like to keep a distance
+ * 20+ ,small interactions, and conversations are okay, friendly but not friends, obviously, i’d like to keep a distance
     
      
