@@ -7,3 +7,7 @@
  * parasocial fans
  * boundary breakers
  * ai users
+   
+   iwec :
+ * adults, as i am a minor </33
+   
