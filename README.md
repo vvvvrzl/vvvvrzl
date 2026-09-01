@@ -1,6 +1,6 @@
  # $\color{green}{\text{im so green}}$
 
- 14 turning 15 on october , billingual , genderfluid <— 
+ 14 turning 15 on october , billingual , genderfluid <— afab
 
  INFO : i’m kind of awkward, sometimes i just dont know what to say, sometimes i just dont feel like talking a lot! i overthink a lot as well (im WORKING ON IT TRUST) and i think i get comfortable very easily, PRETTY PLEASE tell me if i do or say something that upsets you,
  
