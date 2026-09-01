@@ -22,5 +22,5 @@ i prefer knowing your boundaries before we become friends, tell me if you don’
    
   iwec :
  * adults (small interactions, and conversations are okay, friendly but not friends, obviously, i’d like to keep a distance)
-    
+
      
