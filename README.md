@@ -2,7 +2,7 @@
 
  14 , billingual , any pronouns idrc <— afab
 
- INFO : i’m kind of awkward, sometimes i just dont know what to say, sometimes i just dont feel like talking a lot, sometimes i want to talk! i overthink a lot as well (im WORKING ON IT TRUST) and i think i get comfortable very easily, PRETTY PLEASE tell me if i do or say something that upsets you,
+ INFO : i’m kind of awkward, sometimes i just dont know what to say, sometimes i just dont feel like talking a lot, sometimes i want to talk! and i think i get comfortable very easily, PLEASE tell me if i do or say something that upsets you,
 
 i’m pretty comfortable with sitting in silence, i like having people around just for their presence 
  
