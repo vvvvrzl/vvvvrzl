@@ -1,4 +1,8 @@
  # $\color{green}{\text{im so green}}$
+
+ 14, turning 15 on October ! , billingual , genderfluid <— 
+
+ INFO : i’m kind of awkward, sometimes i just dont know what to say, sometimes i just dont feel like talking a lot! i overthink a lot as well (im WORKING ON IT TRUST) and i think i get comfortable very easily, PRETTY PLEASE tell me if i do or say something that upsets you, my messages might seem a little dry but that doesn’t mean i hate you or anything, i just struggle with being very ??emotive?? while texting,,
  
    dni :
  * basic dni
@@ -9,5 +13,6 @@
  * ai users
    
   iwec :
- * adults, as i am a minor </33
-   
+ * adults (as i am a minor) small interactions, and conversations are okay, but we probably wont be FRIENDS friends, obviously, i’d like to keep a distance
+    
+     
