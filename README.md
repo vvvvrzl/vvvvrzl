@@ -21,6 +21,6 @@ i prefer knowing your boundaries before we become friends, tell me if you don’
  * ai users
    
   iwec :
- * adults (small interactions, and conversations are okay, friendly but not friends, obviously, i’d like to keep a distance)
+ * adults (small interactions, and brief conversations are okay, friendly but not friends, obviously, i’d like to keep a distance)
 
      
