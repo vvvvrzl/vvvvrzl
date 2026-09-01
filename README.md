@@ -6,7 +6,7 @@
 
 i’m pretty comfortable with sitting in silence, i like having people around just for their presence 
  
-my messages might seem a little dry but that doesn’t mean i hate you or anything, i just struggle with being very ??emotive?? while texting, so please don’t feel like you have to ‘match my vibe’ or anything
+my messages might seem a little dry but that doesn’t mean i hate you or anything, i just struggle with being very ??emotive?? while texting, so please don’t feel like you have to ‘match my vibe’ or something 
 
 I don’t like to talk about my personal life, i might just straight up refuse to answer a question,
 
