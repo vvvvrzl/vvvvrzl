@@ -11,7 +11,9 @@ my messages might seem a little dry but that doesn’t mean i hate you or anythi
 I don’t like to talk about my personal life, i might just straight up refuse to answer a question,
 
 i prefer knowing your boundaries before we become friends, tell me if you don’t want to interact with me, i won’t take it personally
- 
+
+i’m fakest idgafer you’ll ever meet
+
    dni :
  * basic dni
  * cc!dteam fans
