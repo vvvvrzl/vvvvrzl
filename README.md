@@ -1,6 +1,6 @@
  # $\color{green}{\text{im so green}}$
 
- 14 , billingual , any pronouns idrc <— afab
+ 14 , billingual , any pronouns <— afab
 
  INFO : i’m kind of awkward, sometimes i just dont know what to say, sometimes i just dont feel like talking a lot, sometimes i want to talk! and i think i get comfortable very easily, PLEASE tell me if i do or say something that upsets you, i think sometimes my humor can be a little mean
 
